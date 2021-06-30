@@ -28,7 +28,7 @@
 
 ​    4 - Desligue o fogo, acrescente o creme de leite e misture até a cor ficar homogênea.
 
-​    5 - Batata palha e arroz branco são um ótimo acompanhamento nesse prato​. Bom apetite! :smile: 
+​    5 - Batata palha e arroz branco são um ótimo acompanhamento nesse prato​. Bom apetite! ​​ 
 
 
 
