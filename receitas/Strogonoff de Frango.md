@@ -26,9 +26,9 @@
 
 ​    3 - Acrescente o molho de tomate e tempere com pimenta e sal ao seu gosto.
 
-​    4 - Desligue o fogo, acrescente o creme de leite e misture até a cor ficar homogênea.
+​    4 - Desligue o fogo, acrescente o creme de leite e misture até a cor ficar homogênea. Está pronto pra servir!
 
-​    5 - Batata palha e arroz branco são um ótimo acompanhamento nesse prato​. Bom apetite! ​​ 
+​    E aqui vai uma dica: batata palha e arroz branco são um ótimo acompanhamento nesse prato​. Bom apetite! ​​ 
 
 
 
