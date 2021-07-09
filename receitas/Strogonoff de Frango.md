@@ -15,8 +15,8 @@
 ​    :black_medium_small_square: Azeite.
 
 ​    :black_medium_small_square: Pimenta do reino a gosto.
-
- ​ ​ ​ :black_medium_small_square: Sal a gosto.
+    
+    :black_medium_small_square: Sal a gosto.
 
 :chicken: **Modo de preparo:**
 
@@ -26,7 +26,7 @@
 
 ​    3 - Acrescente o molho de tomate e tempere com pimenta e sal ao seu gosto.
 
-​    4 - Desligue o fogo, acrescente o creme de leite e misture até a cor ficar homogênea. Está pronto pra servir!
+​    4 - Desligue o fogo, acrescente o creme de leite e misture até a cor ficar homogênea. Está pronto para servir.
 
 ​    E aqui vai uma dica: batata palha e arroz branco são um ótimo acompanhamento nesse prato​. Bom apetite! ​​ 
 
