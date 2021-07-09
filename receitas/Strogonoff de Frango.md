@@ -15,8 +15,8 @@
 ​    :black_medium_small_square: Azeite.
 
 ​    :black_medium_small_square: Pimenta do reino a gosto.
-    
-    :black_medium_small_square: Sal a gosto.
+
+​    :black_medium_small_square: Sal a gosto.
 
 :chicken: **Modo de preparo:**
 
